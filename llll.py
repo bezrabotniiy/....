@@ -1,2 +1,1 @@
-print('penis')
-р
+ewjwfcoiwh fow
